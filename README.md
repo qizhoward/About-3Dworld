@@ -94,7 +94,8 @@ About Other
           i don't know how to use it and now i don't want use it thinking way to do ...
           
           if the circle draw on paper unsure
-          （Inaccurate.i don't know this word how to write and lookup internet）...                 
+          （Inaccurate.i don't know this word how to write and lookup internet）...     
+          Change it two circle is better power is powerfull just like as i part powerful powerfull.
 -------------------------------------------------------------------------------------------------
 余鹏      
 2018.11.28
