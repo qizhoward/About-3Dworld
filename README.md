@@ -96,6 +96,7 @@ About Other
           if the circle draw on paper unsure
           （Inaccurate.i don't know this word how to write and lookup internet）...     
           Change it two circle is better power is powerfull just like as i part powerful powerfull.
+          but for some people bad.
 -------------------------------------------------------------------------------------------------
 余鹏      
 2018.11.28
