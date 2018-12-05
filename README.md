@@ -106,12 +106,12 @@ test codex!
 text codex!
 -------------------------------------------------------------------------------------------------
                          　
-                   　　　　|
-          １　１　１　１　  |     that think way like as japan Chess
-            １　１　１　　　|      45 degree angle
-            　１　１　　　　|      i don't know how to write . 
+                   　　　　|----------
+          １　１　１　１　  |         that think way like as japan Chess
+            １　１　１　　　|         45 degree angle
+            　１　１　　　　|         i don't know how to write . 
              　 １        |     
-                          |　   
+                          　   
                           
  -------------------------------------------------------------------------------------------------                         
 
